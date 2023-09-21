@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @HitMonkey69
 - 👀 I’m interested in Cyber Security
-- 🌱 I’m currently learning CCEH
+- 🌱 Looking for opportunity in Cyber Security
 
 
 
